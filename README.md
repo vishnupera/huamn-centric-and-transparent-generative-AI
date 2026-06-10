@@ -1,1 +1,0 @@
-# huamn-centric-and-transparent-generative-AI
